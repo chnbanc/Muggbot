@@ -1,2 +1,2 @@
 # Muggbot
-WhatsApp powered website design bot
+Get paid to watch ads and do simple tasks 
